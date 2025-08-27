@@ -1,1 +1,1 @@
-Friends forging FOSS
+man i love foss
